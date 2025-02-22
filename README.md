@@ -13,3 +13,5 @@ In this presentation, 𝐈 𝐝𝐢𝐯𝐞 𝐢𝐧𝐭𝐨:
 ➡️ Revenue performance of various plans.
 ➡️ Plans most significantly affected by the 5G launch and recommendations.
 ➡️ Why some plans discontinued and the reasons behind that.
+
+Check out the detailed 𝐕𝐢𝐝𝐞𝐨 𝐏𝐫𝐞𝐬𝐞𝐧𝐭𝐚𝐭𝐢𝐨𝐧: https://youtu.be/KZMo4bztXeQ
